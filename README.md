@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CandelariaCernadas
-- 👀 I’m interested in ...  Aorender diferentes lenguajes
+- 👀 I’m interes Aprender diferentes lenguajes
 - 🌱 I’m currently learning ...  SQL Server 
 - 💞️ I’m looking to collaborate on ... Diferentes grupos de trabajo
 - 📫 How to reach me ...  candelariapilarcernadas1998@hotmail.com, candelariapilarcernadas615@gmail.com
